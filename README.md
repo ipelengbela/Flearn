@@ -6,5 +6,5 @@ Just as students are no longer tethered to textbooks (in most formal education s
 
 Project Founders : Welcome Huānyíng Thela & Ipeleng Bela
 
-by Ipeleng Technology Solutions Inc
+Ipeleng Technology Solutions Inc
 
